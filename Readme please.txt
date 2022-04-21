@@ -1,1 +1,0 @@
-No pude subir el archivo a git porque pesaba mucho: https://drive.google.com/file/d/1phnODzkjcjkx_g3hzdIzgFKB4Prd3-gV/view?usp=sharing
